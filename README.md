@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Luki, I like exploring technology.:
+# 💫 Hi, I'm Luki, I like exploring technology.
 I'm currently studying<br>
 
 
